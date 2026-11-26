@@ -1,4 +1,4 @@
-## Hi there 👋 My previous account is suspended because of some security issues.. So thats My New account
+## Hi there 👋 My previous account is suspended because of some security issues.. So thats My New account,
 <h1>Hi 👋, I'm Omkar Jagtap</h1>
   <h3>AI/LLM Analyst | Coding Expertise Freelancer | Full-Stack, Mobile & Game Developer</h3>
 </div>
